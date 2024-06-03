@@ -3,7 +3,7 @@ FOR THE SET UP OF PROJECT, PLEASE FOLLOW THE SET UP GUIDE VIDEO PROPERLY WITHOUT
 
 SET UP GUIDE VIDEO LINK: https://drive.google.com/file/d/1soLm6b6_vKWSmWcUjk5eRxjmSZL5r8IT/view?usp=drive_link
 
-REQUEST ACCESS FOR THE VIDEO BECAUSE IT IS PRIVATE
+REQUEST ACCESS FOR THE VIDEO BECAUSE IT IS PRIVATE 
 
 -----------------------------------------------------------------------
 
